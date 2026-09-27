@@ -1,0 +1,2 @@
+# premium-didgeridoo-bore-001-didgeridoo-boring-back-press
+Tired of inconsistent back pressure and unpredictable bore results? Stop guessing and start experimenting with a systematic workspace designed to track every modification and correlate it to your didgeridoo's voice.  The Didgeridoo Boring &amp; Back Pressure Craft Lab transforms your messy trial-and-error into a structured engineering notebook. It's th
